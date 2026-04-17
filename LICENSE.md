@@ -1,4 +1,4 @@
-
+Experience roblox king legacy like never before with roblox king legacy no-ban Scripts - infinite resources and one-hit kill, the #1 Script. Includes
 
 
 ---
